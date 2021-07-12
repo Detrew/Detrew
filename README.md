@@ -4,6 +4,6 @@
 - 📱Progamo no celular ultilizando o app pydroid
 - 💙Lingua favorita: Python
 - 🛠️estou sempre trabalhando em novos projetos
-- 🤔duvidas? Tenho um servidor no [Discord](https://discord.gg/svxJkPFFwF)
+- 💬contato? me contate no discord Detrew#0001
 - 💬Tenho um canal no [YouTube](https://youtube.com/channel/UCcYilqi-m_9UDMNNj6a5M2w)
 - 🖖Bem vindo ao meu perfil
